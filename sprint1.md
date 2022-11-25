@@ -1,2 +1,2 @@
 **Задачи:**
-1. cltkfnm lp
+1. cltkfnm ght
